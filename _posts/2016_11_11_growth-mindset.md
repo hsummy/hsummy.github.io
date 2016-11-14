@@ -24,7 +24,7 @@ they may challenge themselves too often and may result in lack of focus.
  
 While both Mindsets can produce positive results in life, I definitely 
 identify with the *Growth Mindset*. With this week's historical election, I 
-find it quit appropriate that growth is the theme for this week. No matter
+find it quite appropriate that growth is the theme for this week. No matter
 what choices we make, I would rather have many choices of growth
 than not to be challenged at all. We have many choices as [Kid President 
 has said] (https://www.facebook.com/KidPresident/videos/764957420311575/),
